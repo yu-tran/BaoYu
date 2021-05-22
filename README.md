@@ -1,2 +1,1 @@
-# BaoYu's
-Xin chào các bạn ^^
+Chào mừng bạn đến với mình ^^
